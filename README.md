@@ -1,2 +1,3 @@
-![Screenshot_1713371828](https://github.com/somyyaak/ChatWise/assets/87721952/c1e13bad-c564-43e9-b712-7f2dbb4bedaa)
-![untitled](https://github.com/somyyaak/ChatWise/assets/87721952/493f4749-6080-409f-9404-d53d957a8c23)
+![Screenshot_1713371828](https://github.com/somyyaak/ChatWise/assets/87721952/d4a951e3-4bf5-41ab-a2a3-8cbdc609fe4d)
+![Screenshot_1713371818](https://github.com/somyyaak/ChatWise/assets/87721952/3eec1d00-41e4-425a-8342-570ab013129e)
+
